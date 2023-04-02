@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm pursuing B.Tech. in Information Technology from Vishwakarma Institute of Technology, Pune.<br>I'm a tech-enthusiastic person. I love to play cricket and go for trekking
+I'm pursuing B.Tech. in Information Technology from Vishwakarma Institute of Technology, Pune.<br>I'm a tech-enthusiastic person. I love to play cricket and go for trekking.
 
 
 ## 🌐 Socials:
